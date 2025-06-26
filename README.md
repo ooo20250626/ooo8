@@ -63,4 +63,4 @@ Telegram频道传送门：精选优质 Telegram 频道资源，涵盖资讯、�
 
 基于时间线系统梳理娱乐圈与网红圈重大事件，内容真实、脉络清晰，是舆情分析与热点回顾的重要参考资料。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ooo20250626/ooo8）</span>
